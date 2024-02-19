@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mohammedshady433
+- 👀 I’m interested in biomedical informatics field
+- 🌱 I’m currently learning my field
+- 💞️ I’m looking to collaborate on a big project
+- 📫 How to reach me mohammedshady433@gmail.com
